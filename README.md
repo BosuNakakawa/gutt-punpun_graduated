@@ -1,1 +1,0 @@
-# gutt-punpun_graduated
